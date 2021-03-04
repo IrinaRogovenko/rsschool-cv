@@ -1,12 +1,13 @@
-Rogovenko Irinа.
-80297960106.
-Мои сильные стороны:
+My name is  **Irina Rogovenko**. I am from Belarus. I live in Gomel.
 
-    1.     усидчивость;
-    3.  трудолюбие;
-    4.  коммуникабельность;
-    5.  лояльность.
-С 2008 работаю в ОАО "Белагропромбанк". В данный момент нахожусь в декретном отпуске.
-**Английский язык** учу на данный момент с 0, поэтуму уже могу что-то рассказать о себе.  
+My phone number is *80297960106*.
 
-Окончила ГГТУ им П.О . Сухого по двум специальностям:1.Финансовый менеджмент; 2.Современные инностранные языки (немецкий  язык).
+Since 2008 i have been working at Belagroprombank. I am currently on maternity leave. I’m learning English at the moment from 0, so I can already tell you something about myself.
+
+My strengths:
+
+* perseverance;
+* hard work;
+* sociability;
+* loyalty;
+* perseverance.
